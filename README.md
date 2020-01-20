@@ -1,1 +1,1 @@
-# MTalkz-SMS
+# RezMatic Blog is coming soon
